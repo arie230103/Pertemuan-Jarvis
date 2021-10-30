@@ -1,2 +1,0 @@
-# Arie
-Tugas1
